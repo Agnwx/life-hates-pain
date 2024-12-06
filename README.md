@@ -1,3 +1,3 @@
-# Mission of Living
+# 生活的任务
 
-Life is the source of pain, so we pursue happiness, and every action we take should make the living happy.
+生命是痛苦的源泉，所以我们追求快乐，我们的进行的每一个行动都应该让活着的感到快乐。
