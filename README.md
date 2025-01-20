@@ -1,6 +1,6 @@
 # 生物体科学
 
-## 起伏[[1]](https://en.wikipedia.org/wiki/Seraphim_Falls)[[2]](https://zh.wikipedia.org/wiki/色，戒_(電影))[[3]](https://en.wikipedia.org/wiki/Sherlock_(TV_series))
+## 起伏[[1]](https://en.wikipedia.org/wiki/Seraphim_Falls)[[2]](https://en.wikipedia.org/wiki/Sherlock_(TV_series))
 
 起后需伏。伏，不及则更起而伏。
 
