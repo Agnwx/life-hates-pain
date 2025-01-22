@@ -1,4 +1,4 @@
-# 心灵学
+# 心科学
 
 ## 御心之法[[1]](https://en.wikipedia.org/wiki/Seraphim_Falls)[[2]](https://en.wikipedia.org/wiki/Sherlock_(TV_series))[[3]](https://en.wikipedia.org/wiki/Sh%C5%8Dgun_(2024_TV_series))
 
